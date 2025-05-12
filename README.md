@@ -1,1 +1,1 @@
-![gif](https://x.com/i/status/1921026043294400730)
+![gif](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExam15OTVlYWkwcTF3N2tzOHc5aW15MXR1cWFzbHR5N2NzOGFnaWZxYiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/97e6IX0kayYTK/giphy.gif)
