@@ -1,1 +1,1 @@
-![gif]([https://x.com/YUDHO_XYZ/status/1904904588437885396])
+![gif](https://giphy.com/gifs/bFEQEDLmhrYsse0zFF)
